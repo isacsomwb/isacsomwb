@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @isacsomwb
+- 👀 I’m interested in ... em me formar antes dos 30 anos
+- 🌱 I’m currently learning ...matematica 1
+- 💞️ I’m looking to collaborate on ...medicina em hospitais
+- 📫 How to reach me ...pela dm do insta
+- 😄 Pronouns: ... ele dele
+- ⚡ Fun fact: ...sou inteligenteestudo no ayrton senna, tenho 16 anos!
