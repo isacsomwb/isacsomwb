@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on ...medicina em hospitais
 - 📫 How to reach me ...pela dm do insta
 - 😄 Pronouns: ... ele dele
-- ⚡ Fun fact: ...sou inteligenteestudo no ayrton senna, tenho 16 anos!
+- ⚡ Fun fact: ...sou inteligente e estudo no ayrton senna, tenho 16 anos!
